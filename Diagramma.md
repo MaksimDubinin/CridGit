@@ -1,1 +1,1 @@
-![Diagramma-0](https://github.com/MaksimDubinin/CridGit/assets/148623996/bc09ee19-2fc1-4ecd-81ca-ff45c403e460)
+![Diagramma-0](https://github.com/MaksimDubinin/CridGit/assets/148623996/d1c68541-3203-4f7f-a97c-e4906c06315a)
